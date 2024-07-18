@@ -6,6 +6,116 @@ oh ya, soal hts an aku gamau,aku gasuka hts, kalo kamu gamau pacaran sama aku ya
 aku usahai sebisa mungkin biar kita bisa sama " terus,   aku suka sama kamu, tapi kondisi sekarang aku lagi bingung jadi maaf kalo misal chat aku singkat dan bikin kamu ga enak ngeliat nya maaf ya, kalo kamu mau udahan bilang aja ya,
 aku suka kamu bukan karna alesan apapun, aku juga gatau kenapa bisa suka sama kamu, yaa mungkin karna emang hati aku milih nya kamu, jadi aku gabisa maksain kalo kamu gassuka sama aku
 maaf ya, klo kamu mau hts an mending udahan aku aku gasuka hts, tapi kalo mau lanjut, aku mau yang penting jangan sampe udahan, maaf ya prill kalo kamu ga nyaman sama aku :)
-aku usahain ke depan nya biar bisa lebih baik lagi dan menuhin harapan kamu 
+aku usahain ke depan nya biar bisa lebih baik lagi dan menuhin harapan kamu,
+dan tolong banget, janhan dengerin apa kata orang lain, aku pengen kamu jadi diri kamu sendiri, 
+yahhh, segitu aja, maaf ya kalo aku suka bales chat lama, gitu" juga gada cewek lain yg chatan sama aku kok 
 
-,love you
+,love you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove love you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove love you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove youlove you love youlove youlove you
+love youlove youlove youlove youlove 
